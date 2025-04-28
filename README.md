@@ -13,5 +13,8 @@
 
 此方法旨在于供同学们娱乐使用，平常的锻炼还是必不可少的哦
 更新下载链接
-https://wwbw.lanzouy.com/release11
-https://www.pgyer.com/N8cP
+
+1.https://wwbw.lanzouy.com/release11
+
+
+2.https://www.pgyer.com/N8cP
